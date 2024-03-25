@@ -1,0 +1,2 @@
+# Nazir
+Paraya ihtiyacim var
